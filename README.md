@@ -1,0 +1,1 @@
+- 👋Hola soy Rodrigo del Castillo, me gusta la electrónica, les comparto mis proyectos para hacer las cosas mas útilies. Saludos
